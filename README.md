@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on Data analysis projects for supply chain or logistic process
 - 📫 How to reach me lauradjimenezprado on LinkedIn
 - 😄 Pronouns: Laura Bass
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: watching videos of raining, going to concerts and cooking
 
 
